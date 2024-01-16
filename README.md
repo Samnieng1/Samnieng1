@@ -1,4 +1,4 @@
-### Hi everybody! My name is Samnieng! 👋
+### Hi everybody! My name is Samnieng (Sam)! 👋
 
 I am currently in my final year of studying Software and Web Development.
 
